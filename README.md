@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @m3nt4lm4n
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning GoLang
+- @M3NT4LM4N
